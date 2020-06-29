@@ -14,3 +14,5 @@ Ezekiel 25:17:
 >Blessed is he, who in the name of charity and good will, shepherds the weak through the valley of darkness, for he is truly his brother's keeper and the finder of lost children. 
 >And I will strike down upon thee with great vengeance and furious anger those who would attempt to poison and destroy my brothers. 
 >And you will know my name is the Lord when I lay my vengeance upon thee.
+
+<img src="https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fyt3.ggpht.com%2F-8EJY4NBgmzc%2FAAAAAAAAAAI%2FAAAAAAAAAAA%2FYPCEJeO4aHI%2Fs900-c-k-no%2Fphoto.jpg&f=1&nofb=1"/>
